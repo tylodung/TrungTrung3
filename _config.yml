@@ -1,9 +1,9 @@
 # Site settings
-title: "Phú Quốc Đảo"
-url-title: "Điểm hẹn Phú Quốc"
-description: "Phú Quốc và nơi hẹn hò"
+title: "Evamanga"
+url-title: "Kỷ Niệm Cuộc Sống"
+description: "Nhân Sinh và Triết Lý"
 paginate: 100
-url: "https://appstore3.info/"
+url: "https://evamanga.net"
 permalink: /:year/:month/:title/
 future: false
 defaults:
