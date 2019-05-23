@@ -1,7 +1,7 @@
 ---
 published: true
 hidden: false
-title: Học cách IM LẶNG
+title: Học cách Im Lặng
 tags: styling react styled-components
 twitter_large: true
 image: im-lang.jpg
