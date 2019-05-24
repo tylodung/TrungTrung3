@@ -1,7 +1,7 @@
 ---
 published: true
 hidden: false
-title: Những phép lạ và thần thông của Đức Phật trong kinh điển Phật giáo
+title: Những phép lạ và thần thông trong kinh điển Phật giáo
 tags: styling react styled-components
 twitter_large: true
 image: phat-10.jpg

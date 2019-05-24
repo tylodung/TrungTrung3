@@ -1,7 +1,7 @@
 ---
 published: true
 hidden: false
-title: 7 cách thay đổi số phận theo lời Phật dạy
+title: Những cách thay đổi số phận
 tags: styling react styled-components
 twitter_large: true
 image: max.jpg

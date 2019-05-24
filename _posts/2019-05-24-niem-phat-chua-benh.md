@@ -18,13 +18,13 @@ Chúng ta cũng như các chúng sanh trong thế gian này, quá khứ, hiện 
 
 Thực tế, có những bệnh y học hiện đại của thế giới cũng đã phải bó tay, nhưng điều kỳ diệu là khi niệm Nam Mô A Di Đà Phật đã truyền cho họ ngọn lửa của tình yêu cuộc sống. Nhờ tụng niệm mà nhiều người từ sức lực kiệt quệ, muốn tìm đến cái chết đã sống khoẻ mạnh.
  
-Vì sao niệm Phật chữa bệnh?
+**Vì sao niệm Phật chữa bệnh?**
 
 Có những bệnh tật hết thảy khó trị, phương pháp nào cũng vô hiệu, tụng kinh, bái sám cũng vô hiệu, đó là những bệnh tật là bệnh nghiệp, chỉ có thực hành theo lời Phật dạy mới mong thoát được. Ngoài ăn chay, lạy Phật, thực hành thiện nghiệp thì cuối cùng chắc chắn hữu hiệu là Niệm Phật. 
 
 Ý nghĩa niệm Nam Mô A Di Đà Phật là gì mà có tác dụng chữa bệnh? Bởi lẽ, khi niệm A Di Đà Phật, mười phương hết thảy chư Phật đều gia trì, đều bảo hựu. Oan gia đối đầu, yêu ma, quỷ quái cũng đều nhượng bộ mấy phần, chẳng phải là một đức Phật có mặt, mà là hết thảy chư Phật có mặt, chúng chẳng thể lấn lướt được. Câu Phật hiệu "Nam Mô A Di Đà Phật" quả thật rất màu nhiệm, công năng rất lớn, được rất nhiều lợi ích.
  
-Miệng thường niệm câu Phật hiệu, sẽ có hai tác dụng:
+**Miệng thường niệm câu Phật hiệu, sẽ có hai tác dụng:**
  
 **1.** Tác dụng thứ nhất là khiến cho chánh niệm của chính mình được dấy lên, tức là nhắc nhở chính mình chớ nên quên bẵng tâm, nguyện, giải, hạnh, và vô lượng công đức của A Di Đà Phật.
  
@@ -40,7 +40,7 @@ Khi lâm vào trạng thái lo lắng, âu sầu, căng thẳng, giận dữ... 
 
 Qúy Phật tử có thể trì tụng chú đại bi để tâm bình an, thanh tịnh, diệt trừ nghiệp ác, để hướng phúc lành! 
  
-Vì sao có những người niệm Phật chữa bệnh nhưng không thành?
+**Vì sao có những người niệm Phật chữa bệnh nhưng không thành?**
  
 Thế nhưng có những người niệm Phật chữa bệnh nhưng không thành, vì nguyên nhân nào vậy? Vì niệm Phật chẳng đúng pháp! Chuyện quan trọng nhất trong việc niệm Phật chẳng đúng pháp thì đầu tiên là tín tâm và nguyện tâm. 
 
