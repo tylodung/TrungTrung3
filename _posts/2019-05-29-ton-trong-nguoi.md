@@ -12,7 +12,7 @@ Trong cuộc sống hàng ngày, chúng ta thường nghe thấy người lớn 
 
 ![ten buc hinh](http://vanhoaphatgiaovietnam.net/asset/upload/y/20150824191239-business-people-respect-japanese-culture.jpeg "ten buc hinh")
 
-Hai từ “tôn trọng” có nguồn gốc sâu xa
+**Hai từ “tôn trọng” có nguồn gốc sâu xa**
 
 “Thiên, địa, quân, thân, sư” (Trời, Đất, Vua, Cha mẹ, Thầy) được xưng là năm loại luân thường chí tôn của Nho gia. Cổ nhân kính Trời, kính sợ Thiên mệnh, kính sợ tự nhiên, kính Thần lễ Phật bởi vậy mà người ta thường cúi rạp người xuống đất mỗi khi hành lễ. Cổ nhân nói, cho dù là người mang nợ cũng có chỗ được tôn trọng.
 

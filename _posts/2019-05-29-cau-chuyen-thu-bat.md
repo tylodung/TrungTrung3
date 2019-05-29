@@ -42,7 +42,7 @@ Khi bạn đánh mất nhiều thứ như tiền bạc… công việc… nhưng
 
 Không những chỉ là ngoài cuộc sống mà ngay cả trong công việc, cấp trên cũng đánh giá rất cao về điểm này.. bạn có thể thiếu một chút về kinh nghiệm, nhưng điều đó có thể đào tạo… còn lòng tin cậy thì phải chính do lòng chân thành mà bạn có… không ai có thể đào tạo cho bạn được cả.
 
-Danh ngôn có câu “Chân thành, đó là sự khôn ngoan cao cấp nhất”.
+**Danh ngôn có câu “Chân thành, đó là sự khôn ngoan cao cấp nhất”.**
 
 Nhiều người cho rằng khôn ngoan khi dối gạt được người khác… nhưng thật đáng buồn là họ chỉ có thể khiến cho người ta tin trong khoảnh khắc… còn chỉ có sự chân thành và người chân thành mới chiếm được lòng tin ở người khác lâu dài.
 

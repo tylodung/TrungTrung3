@@ -32,4 +32,4 @@ Trong thời đại này, chớ đem chuyện riêng tư lên internet để là
 
 Cuộc đời rất ngắn ngủ, đừng để bản thân "sống nhầm" cuộc đời của ai khác. Hãy nỗ lực sống là mình một cáh tích cực và tự hào. 
 
-10, Khắc cốt ghi tâm hai chữ "thản nhiên". Thản nhiên đối mặt với mọi việc trong cuộc sống mới có thể vững vàng vượt qua mọi biến cố. Cổ nhân đã từng có câu: "Đời người có không ít gập ghềnh sóng gió, chỉ có cách tự mình vượt qua mới có thể trưởng thành".
+10. Khắc cốt ghi tâm hai chữ "thản nhiên". Thản nhiên đối mặt với mọi việc trong cuộc sống mới có thể vững vàng vượt qua mọi biến cố. Cổ nhân đã từng có câu: "Đời người có không ít gập ghềnh sóng gió, chỉ có cách tự mình vượt qua mới có thể trưởng thành".
