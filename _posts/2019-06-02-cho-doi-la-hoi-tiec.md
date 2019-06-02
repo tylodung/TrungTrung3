@@ -5,7 +5,7 @@ title: Chờ đợi là hối tiếc, sợ hãi không bằng tiếp nhận
 tags: styling react styled-components
 twitter_large: true
 image: cho-doi.jpg
-custom_excerpt: Con người ta khi đến một độ tuổi nhất định, trải qua càng nhiều càng hiểu rõ rằng, đời người có những việc là không thể chờ đợi, chờ đợi là hối tiếc. Có những việc không thể lựa chọn, bởi vì nó không nằm trong khả năng tầm tay của con người. Có những việc không thể sợ hãi mà nên tiếp nhận.
+custom_excerpt: Con người ta khi đến một độ tuổi nhất định, trải qua càng nhiều càng hiểu rõ rằng, đời người có những việc là không thể chờ đợi, chờ đợi là hối tiếc.
 ---
 
 Con người ta khi đến một độ tuổi nhất định, trải qua càng nhiều càng hiểu rõ rằng, đời người có những việc là không thể chờ đợi, chờ đợi là hối tiếc. Có những việc không thể lựa chọn, bởi vì nó không nằm trong khả năng tầm tay của con người. Có những việc không thể sợ hãi mà nên tiếp nhận. 
