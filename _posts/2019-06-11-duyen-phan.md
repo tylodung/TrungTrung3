@@ -27,18 +27,18 @@ Khi người này đến lúc phải xuống xe… Dù cho không nỡ cũng nê
 
 **Hãy nhớ:**
 
-Sở dĩ người ta đau khổ chính là vì theo đuổi mãi những thứ sai lầm
+Sở dĩ người ta đau khổ chính là vì theo đuổi mãi những thứ sai lầm.
 
-Bạn có thể có tình yêu thương nhưng đừng nên dính mắc, vì chia ly là lẽ dĩ nhiên
+Bạn có thể có tình yêu thương nhưng đừng nên dính mắc, vì chia ly là lẽ dĩ nhiên.
 
-Mỗi vết thương là một sự trưởng thành
+Mỗi vết thương là một sự trưởng thành.
 
-Hận thù người khác, kỳ thực là sự mất mát lớn nhất đối với mình
+Hận thù người khác, kỳ thực là sự mất mát lớn nhất đối với mình.
 
-Tình chấp là nguyên nhân của khổ não, buông tình chấp mới được tự tại
+Tình chấp là nguyên nhân của khổ não, buông tình chấp mới được tự tại.
 
-Có lòng yêu vô tư thì sẽ có tất cả
+Có lòng yêu vô tư thì sẽ có tất cả.
 
-Đến là ngẫu nhiên, đi là tất nhiên, thế nên nhất định phải học “tùy duyên”
+Đến là ngẫu nhiên, đi là tất nhiên, thế nên nhất định phải học “tùy duyên”.
 
 Nhân quả không nợ ta thứ gì, xin đừng oán trách. Tình yêu không nợ chúng ta điều gì, nên đừng đổ tội cho nó.
