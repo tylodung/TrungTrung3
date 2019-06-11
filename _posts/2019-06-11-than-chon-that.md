@@ -10,7 +10,7 @@ custom_excerpt: Muốn được thân thể càng khỏe mạnh, thì phải duy
 
 ![ten buc hinh](http://www.thegioiphatgiao.vn/wp-content/uploads/2013/03/200610221-550x412.jpg "ten buc hinh")
 
-RÁN TU CHO GIẢI KHỔ 
+**RÁN TU CHO GIẢI KHỔ**
 
 Khổ mới tu rán tu cho giải khổ,
 
@@ -60,4 +60,4 @@ Luyện luôn thì sẽ hết tánh phàm phu;
 
 Cả đời sống hướng về câu giải thoát. 
 
-NAM MÔ A DI ĐÀ PHẬT
+**NAM MÔ A DI ĐÀ PHẬT**
