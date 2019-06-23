@@ -3,7 +3,7 @@ title: "Hồi Ký"
 url-title: "Kỷ Niệm Cuộc Sống"
 description: "Nhân Sinh và Triết Lý"
 paginate: 100
-url: "https://appstore3.info/"
+url: "https://studiotechweb.com/"
 permalink: /:year/:month/:title/
 future: false
 defaults:
